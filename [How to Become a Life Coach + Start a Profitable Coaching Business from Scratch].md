@@ -17,3 +17,4 @@ you want to be niche down as much  as possible mean you want to have a coaching 
  you are going be building programs and products and packaging their expertise 
  
  
+# stop trading hours for dollars  
