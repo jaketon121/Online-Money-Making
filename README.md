@@ -19,5 +19,11 @@ https://epay.163.com/appCenter.htm
 # 蚂蚁任务平台  - 微信辅助 8.30 早上开始 晚上基本没单
 http://004461.cn/
 
+# 外网亚马逊
+https://www.amazon.com/Kindle-eBooks/b?ie=UTF8&node=154606011
+
+taijibagua506@  tudou
+
+----------------------------------------------
 1 
 腾讯新闻极速版 app  新用户 - 摇钱树 -点击领取新手红包 - 提现 
