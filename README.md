@@ -28,6 +28,11 @@ taijibagua506@  tudou
 https://www.sojiang.com/ 
 
 1870593   tudou 
+
+# 赚美金 调查网   
+https://www.mypoints.com/
+
+taijibagua506@g   密码没注册好 需要重新发送邮件 
 ----------------------------------------------
 1 
 腾讯新闻极速版 app  新用户 - 摇钱树 -点击领取新手红包 - 提现 
