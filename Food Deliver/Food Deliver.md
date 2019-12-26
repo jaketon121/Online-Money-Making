@@ -14,4 +14,7 @@ park twice - once at the restaurant and once when you get to the customer
 
 2 Avoid restaurants that you know are going to be slow 
 
-3. Restaurants Run out of things items 
+3. Restaurants Run out of things items  - communicate well let the customer know what's going on their order ...
+
+# Customer service
+
