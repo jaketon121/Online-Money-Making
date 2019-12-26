@@ -12,6 +12,8 @@ https://www.youtube.com/watch?v=esaOttbyGT4
 
   you have willing to try , no body know when you reject it . 
 
+- Quick return one -  accept the one let me get a quick turnaround but also in a very busy area
+
 
 
 Small investment for big return .
