@@ -26,3 +26,18 @@ Takr order worong - Check orders right  - Back to restaurant is waste time ... t
 Buy one - know what they're offer  to  ...
 
 
+
+
+#  1 DO NOT - Don't accept every single order .
+
+ You need to be very selective on how you accept force as it can be very detrimental to your time and potential money earnings , 
+ you don't want to drive back a deadhead miles to a very popular location because you took orders very far away ...
+ 
+ #  Check instrucions left by the customer  
+ 
+ # 3.MULTI-APP TO MAXIMIZE MONEY FOR TIME   
+ 
+   LOST TIME FOR ONE APP FOR MONEY ,  MULTI - APP FOR MAXIMIZE MONEY .
+   
+   
+ 
