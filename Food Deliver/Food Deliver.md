@@ -8,3 +8,5 @@ park twice - once at the restaurant and once when you get to the customer
 
 2 不要停在不能停的地方 挡路的地方 
 
+# Hard to wating
+
