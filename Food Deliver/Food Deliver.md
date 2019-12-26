@@ -18,3 +18,11 @@ park twice - once at the restaurant and once when you get to the customer
 
 # Customer service
 
+Takr order worong - Check orders right  - Back to restaurant is waste time ... take care ...
+
+#   Another issue is Insurance 
+
+
+Buy one - know what they're offer  to  ...
+
+
