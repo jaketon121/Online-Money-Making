@@ -15,6 +15,7 @@ https://www.youtube.com/watch?v=esaOttbyGT4
 - Quick return one -  accept the one let me get a quick turnaround but also in a very busy area - not that deliver drop by time ...
 
 
+- Dumb it - Educate your market especially the newbies to reject the crap 
 
 Small investment for big return .
 
