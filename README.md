@@ -53,7 +53,7 @@ zeison tudou   二级密码 TUdou
 
 刷单也要实名认证 鬼扯扯的吧   呵呵
 
-# 刷单 - 刷单网   - 刷品多多的额
+# 刷单 - 刷单网   - 刷品多多的 - 要买会员的， 唉， 不好弄
 
 https://www.pindan66.com/login.xhtml
 
