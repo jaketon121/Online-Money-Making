@@ -56,3 +56,5 @@ https://www.youtube.com/watch?v=1lC7tcSdMrE
  #  UNDERSTAND MARKET MEAL TIMES 
  
  
+#  WORK ON WEEKENDS    - MORE PEOPLE ORDER ON WEEKENDS .
+
