@@ -28,6 +28,14 @@ Buy one - know what they're offer  to  ...
 
 
 
+---------------------------------------------------------
+
+
+How to Deliver For CAVIAR - COURIER Beginner Tips | Food Delivery Guide
+
+https://www.youtube.com/watch?v=1lC7tcSdMrE
+
+
 #  1 DO NOT - Don't accept every single order .
 
  You need to be very selective on how you accept force as it can be very detrimental to your time and potential money earnings , 
