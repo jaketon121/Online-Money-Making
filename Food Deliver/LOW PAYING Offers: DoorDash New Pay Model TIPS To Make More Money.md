@@ -17,5 +17,6 @@ https://www.youtube.com/watch?v=esaOttbyGT4
 
 - Dumb it - Educate your market especially the newbies to reject the crap 
 
+- Deliver is estimate is a guesstimate - Its need to accurate -    If you don't take notes you got lost ,  everyone should be taking notes and track of things over time  -   those notes and everything you tracked are gonna help lead to better decisions on the fly ~~~~ ! 
 Small investment for big return .
 
