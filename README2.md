@@ -4,6 +4,9 @@
 聚享游 - 18705927331 - 身份证绑定了 - 体现密码 - 134 
 http://www.juxiangyou.com/
 
+快乐赚 - https://www.lezhuan.com/
+
+
 # 打码平台
 
 大唐打码 （乱七八糟 还要VIP会员机制）
