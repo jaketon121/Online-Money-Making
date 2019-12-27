@@ -1,8 +1,15 @@
 
 # 打码平台
 
-大唐打码
+大唐打码 （乱七八糟 还要VIP会员机制）
 http://www.dtdama.com/default.aspx
+
+Q赚打码
+http://www.qqearn.com/
+
+打码兔
+http://www.damatu1.com/
+
 
 # 试玩APP平台
 
