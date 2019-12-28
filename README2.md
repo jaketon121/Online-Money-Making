@@ -24,6 +24,10 @@ http://www.damatu1.com/
 易赚打码  （日结的）
 http://www.eavea.com/ 
 
+2Captcha -  不能用paypal 只能弄个比特币账户了  - 挂着先
+https://2captcha.com/
+
+taiji@gmail. TUdou3
 
 # 试玩APP平台
 
