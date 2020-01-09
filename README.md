@@ -84,3 +84,7 @@ zeison tudou   QQ 8721
 密码 TUdou
 
 
+# Crush It! Why NOW Is the Time to Cash In on Your Passion
+
+You’re going to work your content in two ways. The first is as a lure, creating it, posting it, and allowing people to come to you as they discover it. The second is to use it as a lasso through comments on other people’s content that relates to yours, inserting yourself into existing conversations and actively creating reasons for your audience to come to you. Of course, you have to give people a place to find your killer content, so let’s go there next.
+
