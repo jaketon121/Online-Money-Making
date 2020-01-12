@@ -33,7 +33,12 @@ http://www.eavea.com/
 https://2captcha.com/
 
 taiji@gmail. TUdou3
+# 推广APP
+番茄免费小说
 
+# 待领取
+世界农场 APP
+陀螺世界 app
 # 试玩APP平台
 
 1 零钱试玩 - 图标一只猪 - 支付宝审核付款的 有点慢 - 放一放  （手机支付宝号码登陆 187）
